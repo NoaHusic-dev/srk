@@ -1,2 +1,0 @@
-# srk
-Our friends group
